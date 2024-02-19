@@ -9,3 +9,5 @@ After completing my studies in international commerce, I have amassed 16 years o
 If my profile aligns with your needs or interests, please feel free to reach out to me.
 
 [![Linkedin](https://img.shields.io/badge/Linkedin-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/aurélia-letoffe)
+
+** Portfolio under construction
